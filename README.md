@@ -1,2 +1,2 @@
 # HappyHalloween
-fb: fb.com/ngoctien.TNT
+fb: https://www.facebook.com/ngoctien.TNT
